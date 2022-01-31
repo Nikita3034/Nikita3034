@@ -2,4 +2,4 @@
 
 ### 📫 How to reach me:
 - Telegram: @nikitaturko
-- Email: goodvinvangood@gmail.com
+- Email: nikita.turko.and@gmail.com
